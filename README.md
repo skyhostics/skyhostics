@@ -36,7 +36,7 @@ Whether you’re a startup looking for reliable hosting or an enterprise needing
 
 🌍 **Website:** [skyhostings.com](#)  
 📧 **Email:** support@skyhostings.com  
-📞 **Contact:** +123 456 7890  
+📞 **Contact:** +254 717 639 683 / +254 704 643 593  
 
 ---
 
@@ -47,6 +47,6 @@ At **SkyHostings**, our mission is simple: to provide **reliable**, **scalable**
 
 ## 🤝 Let's Connect!  
 Stay updated on our latest services and offers by following us:  
-- [LinkedIn](#)  
-- [Twitter](#)  
-- [Facebook](#)  
+- [LinkedIn](https://www.linkedin.com/in/sky-hostics-603a51343/)  
+- [Twitter](https://x.com/skyhostics)  
+- [Facebook](https://web.facebook.com/profile.php?id=61570945663788)  
