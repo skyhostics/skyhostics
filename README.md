@@ -49,4 +49,5 @@ At **SkyHostings**, our mission is simple: to provide **reliable**, **scalable**
 Stay updated on our latest services and offers by following us:  
 - [LinkedIn](https://www.linkedin.com/in/sky-hostics-603a51343/)  
 - [Twitter](https://x.com/skyhostics)  
-- [Facebook](https://web.facebook.com/profile.php?id=61570945663788)  
+- [Facebook](https://web.facebook.com/profile.php?id=61570945663788)
+- [Instagram](https://www.instagram.com/skyhostics/)
